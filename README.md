@@ -21,7 +21,7 @@ _2019 - October 2023_
 - Championed a client-centric approach, delivering tailored IT services that consistently exceeded client expectations.
 
 #### Developer Leader, SIA Tet, Riga
-_January 2022 - Present_
+_January 2022 - November 2022_
 - Lead and manage multiple development teams, focusing on strategic initiatives and enhancing team collaboration.
 - Foster a culture of innovation, encouraging team members to explore new solutions beyond their comfort zones.
 
